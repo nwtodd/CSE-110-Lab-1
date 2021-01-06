@@ -2,7 +2,7 @@
 
 ## Who I Am
 
-Hello, I'm *Noah*. Below is a bit of a self-introduction.
+Hello, I'm Noah. Below is a bit of a self-introduction.
 
 ### **Professional Edition** of Who I Am
 
